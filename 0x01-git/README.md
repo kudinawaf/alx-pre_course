@@ -1,1 +1,1 @@
-My 2nd readme
+My daughter is learning coding with me here
